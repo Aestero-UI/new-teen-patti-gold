@@ -8,7 +8,7 @@
 
 ## 🔗 Official Game Page
 
-👉 [Click here to view the full game preview](https://www.explorerslots.com/preview.html?slug=New-Teen-Patti-Gold)
+👉 [Teen Patti Gold](https://www.yonostore.app/teen-patti-gold)
 
 ---
 
@@ -26,11 +26,10 @@
 
 Looking for more Teen Patti, Rummy, and Slot apps?
 
-👉 [Visit All ExplorerSlots Games](https://aestero-ui.github.io/games/)
+👉 [Visit All ExplorerSlots Games](https://www.yonostore.app/)
 
 ---
 
 ## 👤 Maintained by Aestero-UI
-
-This GitHub page is part of a backlink-building and SEO optimization campaign for [ExplorerSlots.com](https://www.explorerslots.com).  
+ [Yono Store](https://www.yonostore.app/). 
 Content by **Aestero-UI**.
